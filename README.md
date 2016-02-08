@@ -1,0 +1,1 @@
+# Sensor-ptico-Infrarrojo-CNY70
